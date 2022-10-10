@@ -1,2 +1,2 @@
 # sociais
-Redes sociais
+Redes sociais...
